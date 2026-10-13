@@ -1,4 +1,4 @@
 - hope to get skilled at everything
 - not to be lazy
-- why do i even type this
+- why do i even write this
 - do things
